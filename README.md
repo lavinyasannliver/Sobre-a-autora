@@ -25,7 +25,7 @@ Atualmente estou estudando programação e buscando desenvolver meus conheciment
 
 ## 🔗 Onde me encontrar
 
-* 💼 LinkedIn: [lavinyasannliver]
+* 💼 LinkedIn: [https://www.linkedin.com/in/lavinya-sannliver-99b70b391/]
 * E-mail: [sannliverlavinya@gmail.com]
 
 ## 🚧 Em construção...
